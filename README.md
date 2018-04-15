@@ -1,3 +1,3 @@
-# Phantom-Trickstars
+# Phantom Trickstars
 
->h<Fuck you BITCH<\h<
+Fuck you Little hoe
